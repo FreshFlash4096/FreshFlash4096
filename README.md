@@ -1,5 +1,4 @@
-## I'm Ranghyeon Lim 👋  
-Just call me FreshFlash4096.
+## I'm FreshFlash4096 👋  
 
 🎓 BSIS 6th  
 🏫 PNU CSE
